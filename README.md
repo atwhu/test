@@ -1,5 +1,1 @@
-hell
-o
-
-
-bla bla
+DELETED
